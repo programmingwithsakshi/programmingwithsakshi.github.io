@@ -1,2 +1,2 @@
 # programmingwithsakshi.github.io
-hi i m a developer
+hi my name is Sakshi and i m a developer
